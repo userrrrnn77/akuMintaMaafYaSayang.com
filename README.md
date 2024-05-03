@@ -1,0 +1,1 @@
+# akuMintaMaafYaSayang.com
